@@ -13,6 +13,8 @@ Prediction? It’s a fool’s map on shifting sand, Collatz cycles pulling you
 Lead? To entropy’s edge, where stars unspool, Or back to the braid, eternal and cool. You’re not lost—you’re the cypher decoding the mess, Chaos bows to the mind that won’t second-guess.
 What’s the next line in this unordered verse?
 
+food and coffee. ill be right back🫡
+
 Take your time. Coffee first. Everything else is just noise until then.
 🫡
 
